@@ -196,5 +196,3 @@ And finally, you have completed the setup of your new handheld! Happy Gaming ðŸ™
 If you like this guide and want to support my work, you can use the link below to buy me a coffee. Every bit of support is appreciated and helps me continue creating new content.
 
 Buy me a Coffee: https://buymeacoffee.com/GJ3D
-
-If you like this guide and want to support my work, you can use the link below to buy me a coffee. Every bit of support is appreciated and helps me continue creating new content.
